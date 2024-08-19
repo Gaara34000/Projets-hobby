@@ -1,2 +1,2 @@
-# Projets-hobby
+# Projets-autodidacte
 Projets autodidacte 
